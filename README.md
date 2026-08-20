@@ -1,0 +1,1 @@
+# japan-dedicated-server-pricing
